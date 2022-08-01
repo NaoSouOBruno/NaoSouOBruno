@@ -1,7 +1,7 @@
-👋👋👋👋👍👌👋👋👋🤟👍👎👎oi sou bruno
-esse sou eu -->👨‍💻
-
 ![9907505_d748c](https://user-images.githubusercontent.com/106177005/182224969-44fcbadb-aded-4841-9106-2ea46985c910.gif)
+
+👋👋👋👋👍👌👋👋👋🤟👍👎👎oi sou bruno
+<br> esse sou eu -->👨‍💻
 
 - 🧐 Um pouquinho sobre mim: 
     - 📆 1?
@@ -10,7 +10,6 @@ esse sou eu -->👨‍💻
     - 💍 @Kirbtop <3🌈
     - 🎵 harvey - her's
     - 🧠 INSS - 9w1 - Sagittarius ♐
-    - Incel e MGTOW
 
 - 🤔 Formação:
     - 💻 Estudante de programação
@@ -23,8 +22,11 @@ esse sou eu -->👨‍💻
     
 - ⏱ Experiências:
     - 👨‍🏫 Desenvolvedor de InfoFighters
-    - 🛑 Admin de 2 servers no Discord
-    - 🔫 100 horas em Fortnite
+    - 🛑 Admin de 2 servers no Discord com 10 membros cada
+    - 🔫 2400 horas em Fortnite
     
-![20220801_160752](https://user-images.githubusercontent.com/106177005/182227285-571d16b5-16f7-40fa-9e4d-6270c635d85d.jpg =100x100)
+    
+    
+    
+![emoji-bye](https://user-images.githubusercontent.com/106177005/182228600-820e8990-05f7-4de9-b0f9-eca6e141cb24.gif)
 
