@@ -1,16 +1,25 @@
 👋👋👋👋👍👌👋👋👋🤟👍👎👎oi sou bruno
+esse sou eu -->👨‍💻
 
+- 🧐 Um pouquinho sobre mim: 
+    - 📆 1?
+    - 🔰 Ele/dele
+    - 🌎 Treviso, SC
+    - 💍 @Kirbtop <3🌈
+    - 🧠 INSS - 9w1 - Sagittarius ♐
+    - Incel e MGTOW
 
-‣ Um pouquinho sobre mim: 
-    - 🤫 1?
-    - 🌈 @Kirbtop 💍
-    - 🧠 𝐼𝒩𝒮𝒮 - 9𝓌1 - 𝓈𝒶𝑔𝒾𝓉𝓉𝒶𝓇𝒾𝓊𝓈♐
-
-- 🤔 I’m looking for help with ...
-    - 💬 Ask me about ...
-    - 📫 How to reach me: ...
-    - 😄 Pronouns: ...
-    - ⚡ Fun fact: ...
-
-
-@Kirbtop 💍❤🌈 | 1? | 𝐼𝒩𝒮𝒮 - 9𝓌1 - 𝓈𝒶𝑔𝒾𝓉𝓉𝒶𝓇𝒾𝓊𝓈♐ | 𝑀𝑒𝓈𝓉𝓇𝑒 𝑒𝓂 𝐹𝓇𝑒𝑒 𝐹𝒾𝓇𝑒 | 𝒟𝑜𝓊𝓉𝑜𝓇𝒶𝒹𝑜 𝑒𝓂 𝓈𝒶𝓅𝑒𝒸𝒶𝑔𝑒𝓂
+- 🤔 Formação:
+    - 💻 Estudante de programação
+    - 🎯 Mestre em Free Fire
+    
+- 📚 Conhecimento:
+    - 📄 Linguagens: Java, HTML, Python (pretendo)
+    - 🔊 Sei usar Discord
+    - 🚩 Sei jogar Campo Minado
+    
+- ⏱ Experiências:
+    - 👨‍🏫 Desenvolvedor de InfoFighters
+    - 🛑 Admin de 2 servers no Discord
+    - 🔫 100 horas em Fortnite
+    
